@@ -4,5 +4,5 @@
 
 SOSS Kopilica, Računarstvo - 2. godina, 3. semestar; akademska godina 2021./2022.
 
-Nositeljica predmeta: Ljiljana Despalatović, pred.  
+Nositeljica predmeta: Ljiljana Despalatović, v. pred.  
 Suradnik/asistent: Mensur Duraković
